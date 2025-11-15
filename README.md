@@ -1,1 +1,0 @@
-# ganesha360.github.io
